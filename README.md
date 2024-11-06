@@ -8,3 +8,7 @@ https://www.ldplayer.net/blog/a-detailed-introduction-to-key-mapping-of-league-o
 photo background remove
 
 https://www.remove.bg/
+
+screen hex 
+
+https://pickcoloronline.com/
